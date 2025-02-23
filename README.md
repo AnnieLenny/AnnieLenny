@@ -63,8 +63,8 @@ I am always learning new techniques and tools to grow my skill set. Some things 
 Feel free to connect with me! I’m always open to discussions and collaborations. You can reach out to me through:
 
 - 📩 Email: [anniesadler-kamanya.bootcamp@justit.com]
+- 📩 Email: [lianakan08@yahoo.co.uk]
 - 🔗 LinkedIn: [AnnieLenny](link-to-your-linkedin)
-- 🐦 Twitter: [@AnnieLenny](https://twitter.com/AnnieLenny)
 
 ## 🌟 Fun Stats
 
