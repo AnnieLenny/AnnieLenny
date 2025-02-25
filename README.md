@@ -59,6 +59,7 @@ Feel free to connect with me! I’m always open to discussions and collaboration
 - 📩 Email: [anniesadler-kamanya.bootcamp@justit.com]
 - 📩 Email: [lianakan08@yahoo.co.uk]
 - 🔗 LinkedIn: [AnnieLenny](https://www.linkedin.com/in/annie-l-806a9933/)
+- 🔗
 
 ## 🌟 Fun Stats
 
